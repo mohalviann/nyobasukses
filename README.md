@@ -1,1 +1,1 @@
-nyoba sukses
+nyoba sukses yok 
